@@ -31,4 +31,4 @@ I am not responsible for any damage of any kind for using this script!
 
 ## Contact 
 
-* Discord: stackfl#0821
+* Discord: Herra Seini#4444
